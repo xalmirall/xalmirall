@@ -1,5 +1,5 @@
 ### Hi there 👋
 
 - 🔭 I’m a UX/UI Designer.
-- 💬 Ask me about how to improve your CV: www.cvcrafters.net
+- 💬 More about me: www.xavialmirall.com
 - 📫 How to reach me: xaalna@gmail.com
